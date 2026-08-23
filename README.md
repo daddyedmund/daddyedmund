@@ -1,4 +1,4 @@
-i was fighting really hard not to make it but i love making lists and i want to make it easier for people who want to befriend me
+i was fighting really hard not to make this but i love lists and i want to make it easier for people who want to befriend me
 
 __the REAL byi:__
 * if you want to be my friend, please, just say so. be direct with me
