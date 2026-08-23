@@ -1,9 +1,9 @@
-__important stuff i forgot to add to my strawpage:__
+__byi + stuff i didn't add to my strawpage:__
 * look at the fandoms in my dni list with a grain of salt - i mainly mean the weird fans, not people who simply enjoy something.
 * my kins are very important to me, so please don't make fun of me for relating to a certain character/historical figure.
 * if you want to be my friend, please, just say so. be direct with me.
 * i struggle to see the difference between platonic and romantic, so if we're close there's 80% chance i might catch feeling unless you set clear boundaries.
-* please use tone tags.
+* please use or at least try using tone tags, so we can avoid miscomunications!!
 * i experience very intense depressive episodes, please be very patient with me during them.
 * i'm a very sexual person, i make sexual jokes and i struggle with hypersexualty/sexual intrusive thoughts.
 * i watch a lot of movies! feel free to ask me for recommendations:)
