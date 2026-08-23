@@ -16,7 +16,7 @@ __the REAL byi:__
 * look at the fandoms in my dni list with a grain of salt - i mainly mean the weird fans, not people who simply enjoy something
 * i watch a lot of movies! feel free to ask me for recommendations:)
 
-i know there's a lot, but those are most important things about how it is to be close to me. a less detailed verion is on my strawpage. now you know what to expect from me /lh
+i know there's a lot, but those are the most important things about how it is to be close to me. a less detailed version is on my strawpage. now you know what to expect from me /lh
 <!--
 **daddyedmund/daddyedmund** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
