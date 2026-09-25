@@ -8,6 +8,25 @@
     <p align="center">also please don't even try to roleplay with me, i'm too stupid for that.</p>
     <p align="center"><img src="https://64.media.tumblr.com/b2f7c5299f862679ffd323dbb2da417a/cd3438a0ea8758df-12/s2048x3072/f9d5ac2306760351bd2e3b76ef68e7a4f845a070.gifv" width="500"/></p>
     <p align="right"><i>divider made by @/pixopix on tumblr.</i></p>
+    <br>
+    <br>
+    <br>
+    <br>
+    <br>
+    <br>
+    <br>
+    <br>
+    <br>
+    <br>
+    <br>
+    <br>
+    <br>
+    <br>
+    <br>
+    <br>
+    <br>
+    <br>
+    <p align="left"><img src="https://media1.tenor.com/m/cWhH-kZ1IEEAAAAd/go-to-sleep.gif" width="100"/></p><p align="left">you want to follow me on letterboxd soooooo bad...</p>
   </body>
 </html>
 
