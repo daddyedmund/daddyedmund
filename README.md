@@ -1,22 +1,18 @@
-i was fighting really hard not to make this but i love lists and i want to make it easier for people who want to befriend me
+<html>
+  <body>
+<p align="center"><b>felician | nineteen | he/they</b></p>
+<p align="center"><img src="https://64.media.tumblr.com/b2f7c5299f862679ffd323dbb2da417a/cd3438a0ea8758df-12/s2048x3072/f9d5ac2306760351bd2e3b76ef68e7a4f845a070.gifv" width="500"/><img src="https://64.media.tumblr.com/b2f7c5299f862679ffd323dbb2da417a/cd3438a0ea8758df-12/s2048x3072/f9d5ac2306760351bd2e3b76ef68e7a4f845a070.gifv" width="500"/></p>
+    <p align="center">i mostly stick around my friends/people i know, but always feel free to interact with me!! however please keep in mind that i'm genuinely not a talkative person and i do struggle keeping the conversation going, so talking to me may be an awkward experience. i'm also on the spectrum and i have a few untreated mental health conditions (i can't afford therapy right now) and it certainly will affect how i behave. please be patient with me and lmk if i ever upset you or make you uncomfortable.</p>
+    <p align="center">huge dni if you're a jax (tadc) kinnie, jason todd fan, jkr supporter, jutty taylor supporter, funnybunny shipper, sniperscout shipper (i'm a sniperspy truther 🙏🏼) and if you hate me for having a certain kin i will explode you with my mind.</p>
+    <p align="center">int heavily encouraged if you're into ghost (the band), if you have seen the creep movies and/or the creep tapes, if you're a magneto kinnie (we can be cherik together..... heh... /hj), if you're into cinematography and like watching movies and if we share any other interests in general!! even though i'm incredibly awkward i promise, i like meeting new people!!</p>
+    <p align="center">also please don't even try to roleplay with me, i'm too stupid for that.</p>
+    <p align="center"><img src="https://64.media.tumblr.com/b2f7c5299f862679ffd323dbb2da417a/cd3438a0ea8758df-12/s2048x3072/f9d5ac2306760351bd2e3b76ef68e7a4f845a070.gifv" width="500"/><img src="https://64.media.tumblr.com/b2f7c5299f862679ffd323dbb2da417a/cd3438a0ea8758df-12/s2048x3072/f9d5ac2306760351bd2e3b76ef68e7a4f845a070.gifv" width="500"/></p>
+    <p align="right"><i>divider made by @/pixopix on tumblr.</i></p>
+  </body>
+</html>
 
-__the REAL byi:__
-* if you want to be my friend, please, just say so. be direct with me
-* please use or at least try using tone tags, so we can avoid miscomunications
-* i struggle to see the difference between platonic and romantic, so if we're close there's 80% chance i might catch feeling unless you set clear boundaries
-* i'm a very sexual person, i make sexual jokes and i struggle with hypersexualty/sexual intrusive thoughts
-* my kins are very important to me, so please don't make fun of me for relating to a certain character/historical figure
-* i experience very intense depressive episodes, please be very patient with me during them
-* sometimes i feel very slow/stupid, so again, be patient with me
-* i'm genuinely not a talkative person and i won't speak unless someone speaks directly to me
-* i often get pretty overstimulated in crowds and big groups
-* i say slurs i can say (faggot, retard) - if it makes you uncomfortable, just hide me:)
-* i need reassurance, otherwise i'll end up spiraling and overthinking, if it bothers you, don't get close to me /gen
-* i have the anxious attachment style and i cling to people like my life depends on it
-* look at the fandoms in my dni list with a grain of salt - i mainly mean the weird fans, not people who simply enjoy something
-* i watch a lot of movies! feel free to ask me for recommendations:)
 
-i know there's a lot, but those are the most important things about how it is to be close to me. a less detailed version is on my strawpage. now you know what to expect from me /lh
+
 <!--
 **daddyedmund/daddyedmund** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
